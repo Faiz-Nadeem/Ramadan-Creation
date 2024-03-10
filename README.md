@@ -1,2 +1,2 @@
 # Ramadan-Creation
-Characters, Background, Stickers u can use in Ramadan post 
+Characters, Background, and Stickers you can use in Ramadan post 
